@@ -5,7 +5,7 @@
 
 ## 📱 Acesse o App
 
-**🌐 [Clique aqui para usar o aplicativo](https://seuusuario.github.io/calculadora-conta-compartilhada)**
+**🌐 [Clique aqui para usar o aplicativo](https://shgwgkll.manus.space/configuracao-inicial)**
 
 ## 📋 Sobre
 
